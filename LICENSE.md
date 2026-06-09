@@ -1,4 +1,4 @@
-# 
+# exclusive Scripts for blox fruits is the best blox fruits Script, featuring auto-collect and esp. Safe and powerful for all your needs.
 
 
 
